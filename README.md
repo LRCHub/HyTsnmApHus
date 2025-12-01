@@ -1,0 +1,57 @@
+# ホフディラン – スマイル
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+You know that I'm a crazy b**ch
+I do what I want when I feel like it
+All I wanna do is lose control
+Oh oh
+But you don't really give a s**t
+You go with it, go with it, go with it
+'Cause you're f***ing crazy rock 'n roll
+You said 'Hey, what's your name'
+It took one look and now I'm not the same
+Yeah, you said 'Hey', and since that day
+You stole my heart and you're the one to blame
+And that's why I smile
+It's been a while, since every day
+and everything has felt this right
+And now, you turn it all around,
+and suddenly you're all I need, the reason why
+I smile
+Last night I blacked out I think
+What did you, what did you put in my drink
+I remember making out and then oh oh
+I woke up with a new tattoo
+Your name was on me and my name was on you
+I would do it all over again
+You said 'Hey, what's your name'
+It took one look and now I'm not the same
+Yeah, you said 'Hey', and since that day
+You stole my heart and you're the one to blame
+And that's why I smile
+It's been a while, since every day
+and everything has felt this right
+And now, you turn it all around,
+and suddenly, you're all I need, the reason why
+I smile
+You know that I'm a crazy b**ch
+I do what I want when I feel like it
+All I wanna do is lose control
+You know that I'm a crazy b**ch
+I do what I want when I feel like it
+All I wanna do is lose control
+And that's why I smile
+It's been a while, since every day
+and everything has felt this right
+And now, you turn it all around,
+and suddenly, you're all I need, the reason why
+I smile
+It's been a while, since every day
+and everything has felt this right
+And now, you turn it all around,
+and suddenly, you're all I need, the reason why
+I smile
+The reason why, I smile
+```
